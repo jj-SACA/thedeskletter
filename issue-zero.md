@@ -60,4 +60,28 @@ This desk publishes its claims before the outcome, with the test that proves eac
 
 **5. Wall Street says today's rising long-term rates are temporary, caused by oil.** If we are right, the deeper cause is the missing buyer. And rates will not calm down when oil does. We find out by late this year.
 
-## The trade we already tur
+## The trade we already turned down
+
+You should know what this desk refused, and why. That is part of the record too.
+
+In early June, with the "Japanese money coming home" story all over the financial press, we built the obvious trade: bet on a rising yen. Then we checked it against the spending plans Japan's life insurers had just published in late April.
+
+Those plans showed the opposite of the headline. The insurers are the least protected against a rising yen they have been in decades, and they plan to stay that way. The biggest money in Japan is not acting like the story is real yet. No scheduled event forces the issue. So we passed.
+
+The dollar sat near 159.66 yen the day we passed, and near 159.90 the day after. So far the market agrees with us. But this call is not graded yet. The June and July reports grade it. If they prove a real turn is underway right now, our pass was wrong, and this page will say so in plain words.
+
+## What to do now
+
+**With your money: nothing.** That is the honest answer, and you will notice nobody selling something ever gives it.
+
+**With your calendar: mark mid-June.** The April TIC report is the first real test. We will read it and tell you, in one sentence, seasonal or structural.
+
+**With your memory: keep one number, 140.** If you ever see the dollar fall below 140 yen and stay there, you will know something most people watching headlines do not: the forced buying has begun.
+
+You now know which number actually decides this story, and the dates it gets decided. That puts you ahead of almost everyone reading the same headlines.
+
+Next issue prints when the June number does.
+
+---
+
+*This is a publication, not investment advice. Nothing here is a recommendation to buy or sell anything. We publish our reasoning and the conditions under which it fails. What you do with it is yours.*
